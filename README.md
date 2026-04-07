@@ -70,7 +70,7 @@
 
 ## 🌐 Connect with Me
 - LinkedIn: [www.linkedin.com/in/anant-tripathi-developer03]
-- Email: anantt.tripathi6@email.com
+- Email: anantt.tripathi06@email.com
 
 ---
 
